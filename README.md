@@ -1,2 +1,0 @@
-# coarse-engine
-COARSE, NOT SOURCE HHAHAHAHAHHA
